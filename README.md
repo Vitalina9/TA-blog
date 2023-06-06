@@ -1,1 +1,1 @@
-# TA-blog
+# TA-blog Vitalina Didyk
